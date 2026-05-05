@@ -1,0 +1,2 @@
+# 1Pinterest-mcp
+Cool
